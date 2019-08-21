@@ -4,4 +4,4 @@ congrats
 EnCt20c3689edaf1e16c3b723880abd5fc52e41ce4b1c0c3689edaf1e16c3b723880aMIigEMWpDAE
 MaFaaXV39nzBRIgcLKX7xb9KFRFYGHvhKt9G9owKMfPCFs9l47n8=IwEmS
 
-https://nwlryqna.rc
+qccyb://nwlryqna.rc
